@@ -1,4 +1,4 @@
-## Hi, I'm Jacob 👋
+## Hi 👋
 
 *If it's not measured, did it really happen?*
 
